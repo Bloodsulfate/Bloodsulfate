@@ -15,7 +15,8 @@
   -enemy impacts
   - ears smooth
   - receive and out dammages to the enemy
- 
+ - pick and read my power
+ - watching  and read to receive idea 
 
 
 
