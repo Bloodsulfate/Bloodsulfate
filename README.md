@@ -7,8 +7,15 @@
 -🤳 reading about 🌎  
 -health power for me<!---
 -medecine for me
--food for me
--
+-food supply for me
+-brain automatic to the enemy
+  -brain smooth analysing
+  -step guard
+  -sleep guard in my house and my family
+  -enemy impacts
+  - ears smooth
+  - receive and out dammages to the enemy
+ 
 
 
 
