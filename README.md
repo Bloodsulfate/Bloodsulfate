@@ -19,7 +19,7 @@
  - watching  and read to receive idea 
 - no one can connect my brain and mouth and body 
 - eating good
-  
+  -relaxing my body
 - save life and my family
 -wallking distance.
 -dringking water
