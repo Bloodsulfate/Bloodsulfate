@@ -17,8 +17,19 @@
   - receive and out dammages to the enemy
  - pick and read my power
  - watching  and read to receive idea 
-
-
+- no one can connect my brain and mouth and body 
+- eating good
+- out germs to my body
+- save life and my family
+-wallking distance.
+-dringking water
+  -active
+  -lucky day
+  -preety face
+  -driving safe
+  -normal heart beat
+  -normal sleep
+  -automatic control my body and my family s and my friend's
 
 
 
