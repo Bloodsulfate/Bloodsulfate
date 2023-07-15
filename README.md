@@ -8,7 +8,10 @@
 -health power for me<!---
 -medecine for me
 -food for me
--
+  -guid direction to the enemy
+  -guard in my mind
+  -arrow to the enemy
+  -balance for me
 
 
 
