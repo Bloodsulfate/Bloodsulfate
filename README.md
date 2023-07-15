@@ -14,12 +14,12 @@
   -sleep guard in my house and my family
   -enemy impacts
   - ears smooth
-  - receive and out dammages to the enemy
+    -
  - pick and read my power
  - watching  and read to receive idea 
 - no one can connect my brain and mouth and body 
 - eating good
-- out germs to my body
+  
 - save life and my family
 -wallking distance.
 -dringking water
